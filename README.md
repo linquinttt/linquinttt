@@ -1,4 +1,4 @@
-[//]: (artists : @linquinttt on twt. inspo by @pueriled and @jean_ryt on pin. both of their works r adorbs)
+
 ![](https://files.catbox.moe/2bsu2s.png)
 ->'   name  /  name !    —    ageyo<-
 ->prn  prn﹙ ⎯⎯ ⠀!   🦴  ₊ᶻ<-
