@@ -1,1 +1,9 @@
-<img width="736" height="414" alt="IMG_0454" src="https://github.com/user-attachments/assets/116e36b4-93d7-49f2-b186-ed3ffa1f0075" />
+[//]: (artists : @linquinttt on twt. inspo by @pueriled and @jean_ryt on pin. both of their works r adorbs)
+![](https://files.catbox.moe/2bsu2s.png)
+->'   name  /  name !    —    ageyo<-
+->prn  prn﹙ ⎯⎯ ⠀!   🦴  ₊ᶻ<-
+->sexuality⠀ꜝ txt  txt  txt  txt  ⁎⠀gender<-
+![](https://files.catbox.moe/ho7crl.png)
+->♡  ⠀ info ⠀  ⠀ ![](https://files.catbox.moe/giq2ue.png)  ᯇ⠀  ⠀' ⠀  ⠀ info. ⠀  ⠀◟ ♡ ◝<-
+->✧  ࿁  ˙⠀⠀txt  txt  txt⠀  +  ⠀txt  txt  txt~!⠀+  ⠀ ˋ⠀![](https://files.catbox.moe/unj1dl.png)<-
+![](https://files.catbox.moe/kdbtzl.png)
