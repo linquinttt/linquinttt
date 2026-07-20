@@ -1,10 +1,22 @@
-<img width="1280" height="175" alt="Untitled31_20260718111304" src="https://github.com/user-attachments/assets/e9059751-028c-44a1-a855-9475bb6ce930" />
-
-<img width="690" height="495" alt="Untitled28_20260718105134" src="https://github.com/user-attachments/assets/bac3eec8-452f-4084-8dcb-c0d2e5e4c725" />
-
-**[STRAW PAGE  ゛](https://hedjjdjdjd.straw.page/)**
-
-<img width="1280" height="175" alt="Untitled31_20260718111320" src="https://github.com/user-attachments/assets/f5c952f0-3f02-4385-aed8-430aac7a0316" />
 
 
+
+</p>
+<p align="center">
+<br>
+  ${\textsf{\color{#989883}─────────────────────────────────}}$
+</p>
+<p align="center">
+<br> $\textit{{\color{#989883}  ⏝꒷︶ ͡𑁬     𝐰𝐢𝐧𝐝𝐝　𝐨𝐫　𝐭𝐚𝐫𝐲𝐧　　𝐬𝐡𝐞　/　𝐭𝐡𝐞𝐲　　✦　　𝐮𝐭𝐜+𝟖    ໒ ͡ ︶꒷⏝}}$ 
+</p>
+<p align="center">
+<br>
+  ${\textsf{\color{#989883}─────────────────────────────────}}$
+</p>
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=tarynights&label= 𝝑𝝔 &color=DBDBB8&style=plastic">
+</p>
+<p align="center">
+<img src="https://file.garden/ZpSmRfBtbXzn2i35/Untitled694_20260118001846.png">
+</p>
 
