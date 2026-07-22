@@ -11,9 +11,7 @@
 <p align="center">
 <br>
   ${\textsf{\color{#989883}─────────────────────────────────}}$
-</p>
-<p align="center">
-<br> $\textit{{\color{#989883}[STRAW PAGE][https://linquinttt76.straw.page/]
+
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=tarynights&label= 𝝑𝝔 &color=DBDBB8&style=plastic">
 </p>
