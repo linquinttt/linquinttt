@@ -18,4 +18,4 @@
 <p align="center">
 <img src="https://file.garden/ZpSmRfBtbXzn2i35/Untitled694_20260118001846.png">
 </p>
-
+[<img width="2000" height="2000" alt="Image" src="https://github.com/user-attachments/assets/f58409ca-6813-4529-9439-7f6dcd54c126" />](https://linquinttt76.straw.page/)
