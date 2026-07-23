@@ -19,4 +19,4 @@
 <img src="https://file.garden/ZpSmRfBtbXzn2i35/Untitled694_20260118001846.png">
 </p>
 
-**[STRAW PAGE ](https://linquinttt76.straw.page/)**    **[DISCORD](https://discord.gg/JRpySYe3/)**
+**[STRAW PAGE ](https://linquinttt76.straw.page/)**    **[DISCORD](https://discord.gg/XRUm6Uu6/)**
